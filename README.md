@@ -1,4 +1,4 @@
-# Happy Halloween!!!🕸🍬🍭🍡🎃🦇
+# Happy Halloween!!!🕸 🍬 🍭 🍡 🎃 🦇
 
 ![Screenshots](https://github.com/JayantGoel001/Halloween/blob/master/screenshots/ss1.png)
 
